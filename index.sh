@@ -1,2 +1,2 @@
 abcdefghijfjk
-nadia cantik
+nadia cantik pake banget kata mama
